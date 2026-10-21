@@ -1,2 +1,0 @@
-# atividades-grau-tec.
-atividades 
